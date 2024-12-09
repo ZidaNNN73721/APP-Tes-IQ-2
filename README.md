@@ -1,1 +1,0 @@
-# Tugas-Tes-IQ
